@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nikitaaa27
-- 👀 I’m interested in Airplanes, AI, and Music
+- 👀 I’m interested in Airplanes, AI, Controls, and Music
 - 🌱 I’m currently learning Aerospace Engineering @ UIUC
 - 💞️ I’m looking to collaborate on projects!
 - 📫 How to reach me: kovalov2@illinois.edu
